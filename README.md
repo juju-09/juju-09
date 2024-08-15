@@ -1,3 +1,3 @@
 oiii sou a juju 💜
 
-![](https://media1.tenor.com/m/cqViSFMa6D0AAAAd/cat.gif)
+![](https://i.gifer.com/origin/3a/3ae14033daf59ffdd6b3dc58177a5630_w200.gif)
